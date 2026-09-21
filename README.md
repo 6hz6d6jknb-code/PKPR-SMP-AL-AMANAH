@@ -1,1 +1,0 @@
-# PKPR-SMP-AL-AMANAH
